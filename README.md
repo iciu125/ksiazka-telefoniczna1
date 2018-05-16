@@ -1,1 +1,0 @@
-# ksiazka-telefoniczna
